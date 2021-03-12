@@ -6,3 +6,6 @@
 
 You can also reach me at
 [Discord](https://discord.com/users/445013068070780932 "My Discord")
+[Steam](https://steamcommunity.com/profiles/76561199013522072 "My Steam")
+[Email](mailto:dillon@fluxnology.com "Email Me")
+[Reddit](https://reddit.com/u/real-person-null "Reddit")
